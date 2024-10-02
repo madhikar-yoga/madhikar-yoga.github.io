@@ -1,1 +1,0 @@
-# madhikar_yoga
